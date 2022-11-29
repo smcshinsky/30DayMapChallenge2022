@@ -209,7 +209,10 @@ https://twitter.com/smcshinsky/status/1597238492098007040
 <img src="https://user-images.githubusercontent.com/1392717/204374235-1c2eec41-8e18-4f69-a63c-73e27ae9b977.jpg" height="500" /><img src="https://user-images.githubusercontent.com/1392717/204374238-c1d4296a-1364-40d4-a010-b8b201701821.jpg" height="500" />
 
 ## Day 29: “Out of my comfort zone”
-<img src="" height="500" />
+3D diarama 
+
+<img src="https://user-images.githubusercontent.com/1392717/204417585-e40abe81-eb45-43f4-a610-a6b0cbad8573.png" height="500" />
+
 
 ## Day 30: Remix
 <img src="https://user-images.githubusercontent.com/1392717/204366140-8d8ae314-f222-4ab4-9a03-cdd6fe8c970e.png" height="500" />
