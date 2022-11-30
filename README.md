@@ -210,11 +210,18 @@ https://twitter.com/smcshinsky/status/1597238492098007040
 
 ## Day 29: “Out of my comfort zone”
 3D diarama 
+learn a new tool. Here is a cross section of Utah County looking across Utah Lake at Mount Timpanogos.
+
+https://twitter.com/smcshinsky/status/1597495038639890433?s=46&t=vpe9KygO8wiubkFc_hE62w
 
 <img src="https://user-images.githubusercontent.com/1392717/204417585-e40abe81-eb45-43f4-a610-a6b0cbad8573.png" height="500" />
 
 
 ## Day 30: Remix
+Legend of Bonneville, Breath of the Wild. @gisXiaoWang made a Zelda style map and inspired me to make my own version. The area is part of the historic is Lake Bonneville in Utah. Tried to make it look like the video game.
+
+https://twitter.com/smcshinsky/status/1597958161167548416?s=46&t=vpe9KygO8wiubkFc_hE62w
+
 <img src="https://user-images.githubusercontent.com/1392717/204366140-8d8ae314-f222-4ab4-9a03-cdd6fe8c970e.png" height="500" />
 
 
